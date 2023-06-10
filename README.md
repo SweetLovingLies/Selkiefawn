@@ -1,0 +1,6 @@
+- Hi, call me Hana. I'm 18 and non-binary. 
+- I really enjoy gaming and web design. They've been my interests for years.
+- I began learning web design as a creative outlet, and now I want to make a job out of it.
+- Most of the stuff I do is cute themed, as that is my motivation.
+- I’m currently learning JavaScript. I have a solid understanding of front-end work. 
+- Ask for my discord if you want to talk! I haven't gotten the username change yet so I won't put it here quite yet. 
